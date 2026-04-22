@@ -1,0 +1,2 @@
+# krdMuslim
+Beautiful Islamic app ☪️
